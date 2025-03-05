@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @AS4GamingAK (Actually, that's my gamer tag! My real name is...., Wait a minute....!)
-- 👀 I’m interested in Playing video games.
-- 🌱 I’m currently learning Web Designing & Python.
-- 💞️ I’m looking to collaborate on a shooting game website.
-- 📫 To reach me, contact amolsrivastava.1712@gmail.com
+[EVERYTHING](https://linktr.ee/itsamolsan)
